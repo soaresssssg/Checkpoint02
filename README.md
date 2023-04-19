@@ -1,0 +1,2 @@
+# Checkpoint02
+CP02 - GUIAS E NORMAS DA QUALIDADE
